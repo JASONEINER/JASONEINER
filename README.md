@@ -1,2 +1,2 @@
 ### Jason Einer Rojas Flores
-[![gato-negro.jpg](https://i.postimg.cc/QNkxK2h0/gato-negro.jpg)](https://postimg.cc/Rqhzjb3H)
+[![Dise-o-sin-t-tulo.png](https://i.postimg.cc/vm08S92k/Dise-o-sin-t-tulo.png)](https://postimg.cc/Mcj8ncSm)
