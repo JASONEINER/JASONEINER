@@ -1,2 +1,2 @@
 ### Jason Einer Rojas Flores
-[![1.png](https://i.postimg.cc/gcQVTLfx/1.png)](https://postimg.cc/qgc6tqBr)
+[![Data-Science-Teledetecci-n-GIS.png](https://i.postimg.cc/zBMDSgxN/Data-Science-Teledetecci-n-GIS.png)](https://postimg.cc/mzYGTtxp)
